@@ -1,1 +1,1 @@
-Life Good.Eat Banan
+Life Good.Eat Banana
